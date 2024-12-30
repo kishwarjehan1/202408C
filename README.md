@@ -1,3 +1,1 @@
-
-meri fav teacher hai miss ali jawad
-hureee huree
+how are yuou
